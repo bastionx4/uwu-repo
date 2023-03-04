@@ -1,3 +1,3 @@
-# UwU
+# mad
 
 github is funny
